@@ -56,7 +56,6 @@ I enjoy coding, building projects, and always exploring new technologies 🚀.
 
 ## 💡 Fun Facts
 - 🎨 I run my own small business in **Resin Art** (Handy for Resin).  
-- 🏖️ Love spending time in **El Gouna**, especially at Downtown.  
 - 👩‍💻 Coding is not just study for me, it’s something I enjoy doing every day.  
 
 ---
